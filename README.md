@@ -2,7 +2,7 @@
 
 [haydenso.com](haydenso.com), [x](x.com/haydsso), [linkedin](https://www.linkedin.com/in/haydenso/)
 
-clawd and i go brrrr. i write sometimes
+clawd and i go brrrr. i write sometimes. made my first git commit at 14 y/o???
 
 
 <!--
