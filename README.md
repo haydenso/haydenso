@@ -1,7 +1,9 @@
 ## hey there, i'm hayden
 
 [haydenso.com](haydenso.com)
+[x](x.com/haydsso)
 
+clawd and i go brrrr. i write sometimes
 
 
 <!--
