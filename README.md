@@ -1,7 +1,6 @@
 ## hey there, i'm hayden
 
-[haydenso.com](haydenso.com)
-[x](x.com/haydsso)
+[haydenso.com](haydenso.com), [x](x.com/haydsso), [linkedin](https://www.linkedin.com/in/haydenso/)
 
 clawd and i go brrrr. i write sometimes
 
